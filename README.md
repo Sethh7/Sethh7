@@ -1,4 +1,1 @@
 - Hi, I’m @Sethh7.
-- I love coffee.
-- I love program.
-- I love cats hihi.
